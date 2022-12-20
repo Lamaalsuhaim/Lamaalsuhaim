@@ -1,3 +1,3 @@
-- 👋 Hi, I’m @Lamaalsuhaim , Technical Recruiter 
+- 👋 Hi, I’m @Lamaalsuhaim, Technical Recruiter 
 - 👀 I’m interested in Technology and Programming
 - 📫 How to reach me? via Email: Lamaalsuhaim11@gmail.com
